@@ -1,6 +1,6 @@
 # demexam
 Демэкзамен<br>
-папки: https://drive.google.com/file/d/1U4TeVWM2OAnH4pYsuIPSTfloHDg0UeA3/view?usp=sharing<br>
+папки: https://drive.google.com/drive/folders/1jqnt2yAJ8OAHwHmAwCQ0yhKeQr8tnwcd?usp=sharing <br>
 <br>
 https://bom.firpo.ru/Public/87
 бланк оценочных материалов
